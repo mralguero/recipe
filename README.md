@@ -20,7 +20,7 @@ Just four ingredients:
 
 -Regular Milk
 
--\*\*Tip:\*\* Sugar for the \*caramel\*
+-\*Tip:\* Sugar for the \*\*caramel\*\*
 
 !\[Spanish flan](recipe.jpg)
 
